@@ -1,0 +1,1 @@
+roast all the walnuts.after roasting walnuts take all the dark chocolate compound and cook at low flame and start adding the milkmaid and mix and the pour into a bowl and refridgrate the chocolate fudge and then after the chocolate fudge is ready take and with a hot nife cut it into desired shape.
